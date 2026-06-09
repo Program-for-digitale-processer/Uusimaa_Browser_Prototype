@@ -1,1 +1,1 @@
-Not to be distributed without permission.
+Not to be copied and distributed without permission.
